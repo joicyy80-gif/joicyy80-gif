@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there! 😄
+## I'm new here and I don't know much yet, especially about English. However, I'm going to dedicate myself a lot this year, 2026. It's my first year of high school, and I'm excited!
 
 <!--
 **joicyy80-gif/joicyy80-gif** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
