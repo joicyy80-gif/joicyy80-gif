@@ -1,4 +1,4 @@
-## Hi there! 😄
+## Hi stars! 😄
 ## I'm new here and I don't know much yet, especially about English. However, I'm going to dedicate myself a lot this year, 2026. It's my first year of high school, and I'm excited!
 
 <!--
